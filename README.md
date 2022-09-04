@@ -18,7 +18,7 @@ Here is recent picture of my and my coaches for the football team. The head coah
 <img width="709" alt="Screen Shot 2022-09-01 at 10 41 32 AM" src="https://user-images.githubusercontent.com/112639180/187943399-c29e2dc1-4a29-4c97-86c2-c4943ccfeef4.png">
 
 
-Here is pictrure of my model airport project without any planes. Both the terminals and matt with the runways and taxiways come sepratly from a compsany called GeminiJets. 
+Here is pictrure of my model airport project without any planes. Both the terminals and matt with the runways and taxiways come sepratly from a company called GeminiJets. 
 
 ![1-400](https://user-images.githubusercontent.com/112639180/187945692-29e9856b-7fbc-47e8-abd9-6b5488580b72.jpeg)
 
