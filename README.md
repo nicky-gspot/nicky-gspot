@@ -1,16 +1,17 @@
-### Whats going on class 👋
+ Whats going on class 👋
 
 This is Nicholas Glynos or as people like to call me Nicky G. 
 
 Here are some basic facts about me that you should know...
 
-- 🔭 My project that I am working on a 1:400 scale model airport in my basement.(Picture attacthed below)
-- 🌱 I’m currently working at Sneakers Plus in Flemington as a assistant (family business)
-- 👯 I’m am currently a assisant football coach at Watchung Hills Regional High School. Go Warriors...
-- 🤔 I’m looking for help with devloping a website for my model airplane small business shop
-- 💬 Ask me about anything about  aviation...
-- 📫 How to reach me: call me 908-655-8075 or email me nickygfootball@gmail.com.
-- ⚡ Fun fact: I love classic 70s and 80s rock and my favorite band is Guns N' Roses. I saw Slash, Lynyrd Sknyrd & the Doobie Brothers in concert.
+- This is my third year at RVCC and I plan to graduate in the spring. I plan to transfer straight to work after I graduate. 
+- I graduated from Watchung Hills Regional High School in 2020 and am now an assisant football coach at Watchung Hills Regional High School for six years. Go Warriors...
+- My project that I am working on a 1:400 scale model airport in my basement.(Picture attacthed below)
+- I’m currently working at Sneakers Plus in Flemington as a assistant (family business)
+- I’m looking for help with devloping a website for my model airplane small business shop
+- Ask me about anything about  aviation...
+- How to reach me: call me 908-655-8075 or email me nickygfootball@gmail.com.
+- Fun fact: I love classic 70s and 80s rock and my favorite band is Guns N' Roses. I saw Slash, Lynyrd Sknyrd & the Doobie Brothers in concert.
 Some pictures of my life Pictures
 Here is recent picture of my and my coaches for the football team. The head coah (pictured in the midle right above me kneeling down is a former super bowl champion Rich Seubert #69 for the NY Giants XLII against the patriots)
 
