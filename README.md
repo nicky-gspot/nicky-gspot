@@ -12,7 +12,11 @@ Here are some basic facts about me that you should know...
 - Ask me about anything about  aviation... 🛩️
 - How to reach me: call me 908-655-8075 or email me nickygfootball@gmail.com. 📧
 - Fun fact: I love classic 70s and 80s rock and my favorite band is Guns N' Roses. I saw Slash, Lynyrd Sknyrd & the Doobie Brothers in concert. 🎸
+
+
 Some pictures of my life Pictures 🌐
+
+
 Here is recent picture of my and my coaches for the football team. The head coah (pictured in the midle right above me kneeling down is a former super bowl champion Rich Seubert #69 for the NY Giants XLII against the patriots) 🏈
 
 <img width="709" alt="Screen Shot 2022-09-01 at 10 41 32 AM" src="https://user-images.githubusercontent.com/112639180/187943399-c29e2dc1-4a29-4c97-86c2-c4943ccfeef4.png">
