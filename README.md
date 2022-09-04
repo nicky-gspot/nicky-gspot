@@ -4,7 +4,7 @@ This is Nicholas Glynos or as people like to call me Nicky G.
 
 Here are some basic facts about me that you should know...
 
-- git commit -m 'Fixed whatever, time for :school' This is my third year at RVCC and I plan to graduate in the spring. I plan to transfer straight to work after I graduate. 
+- git commit -m ✈️' This is my third year at RVCC and I plan to graduate in the spring. I plan to transfer straight to work after I graduate. 
 - I graduated from Watchung Hills Regional High School in 2020 and am now an assisant football coach at Watchung Hills Regional High School for six years. Go Warriors...
 - My project that I am working on a 1:400 scale model airport in my basement.(Picture attacthed below)
 - I’m currently working at Sneakers Plus in Flemington as a assistant (family business)
